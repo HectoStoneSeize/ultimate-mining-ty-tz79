@@ -1,4 +1,4 @@
-
+ultimate mining tycoon Scripts new is the best ultimate mining tycoon Script, featuring private server access and auto-heal. Safe and powerful for
 
 
 
